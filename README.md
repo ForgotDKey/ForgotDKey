@@ -2,4 +2,4 @@
 - 👀 Estou em busca de oportunidade na área web
 - 🌱 Atualmente estou estudando e criando projetos nas linguagem voltadas a desenvolvimento de sites
 - 💞️Busco evolução de conhecimento, e crescimento profissional
-- 📫 Meu linkedin: Keylla Kauane Gomes dos Santos
+- 📫 Meu linkedin: https://www.linkedin.com/in/keylla-kauane-gomes-dos-santos-70531b216
